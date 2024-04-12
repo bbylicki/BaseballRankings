@@ -7,6 +7,6 @@
 
 1. John Rocker - points for being a former duck. Minus points for just being a Long Island adult
 
-1. Wanda Franco - minor leagues
+1. Wanda Franco - minor leaguers
 
-1. Filipe Vazquez - major minor leagues
+1. Filipe Vazquez - major minor leaguers
